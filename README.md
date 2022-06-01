@@ -1,0 +1,2 @@
+# kumar
+i hate society
